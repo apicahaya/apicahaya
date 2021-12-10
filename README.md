@@ -2,7 +2,7 @@
 
 Hi my name is Agni and thanks for visiting my profile!
  
-I'm close to finished my journey to be a World Class Developer @ Apple Developer Academy Cohort 4 in Indonesia and now I am pursuing my career as iOS Developer.
+I'm close to finished my journey to be a World Class Developer @ Apple Developer Academy Cohort 4 in Indonesia and now I'm pursuing my career as iOS Developer.
  
  🚀 Love to create project from the impactful one into the most ridiculous one.
  
